@@ -1,2 +1,2 @@
 Voici un exercice pour le groupe 2
-Coucou c'est moi moumou
+Coucou c'est moi moumou la reine des mouettes
